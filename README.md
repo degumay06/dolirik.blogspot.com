@@ -1,0 +1,2 @@
+# dolirik.blogspot.com
+blog
